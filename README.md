@@ -1,1 +1,0 @@
-# QoderGuy.github.io
